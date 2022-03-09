@@ -2,9 +2,9 @@
 - 👀 I’m interested in ... Telegram API
 - 🌱 I’m currently learning ... How to stir shit like Jordan Sather
 - 💞️ I’m looking to collaborate on ... 
-- 📫 How to reach me ... 
+- 📫 How to reach me ... TS account to be announced.
 
-- Be Happy!
+- You own nothing and you will be Happy!
 
 <!---
 shironoY6/shironoY6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
