@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... TS account to be announced.
 
-- You own nothing and you will be Happy!
+- You will own nothing and you will be Happy!
 
 <!---
 shironoY6/shironoY6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
